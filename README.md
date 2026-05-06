@@ -10,7 +10,7 @@ $\text{\color{#FFE590} Welcome to our den!}$\
 $\text{\color{#465278} We are a singlet.}$\
 $\text{\color{#FFE590} Mark tends to be very shy.}$\
 $\text{\color{#465278} We are usally not offtab and waiting for someone to interact.}$
-
+$\text{\color{#FFE590} DNI is in our lurk.me. }$\
 
 
 <img width="1280" height="256" alt="1778017587447745098240508435577" src="https://github.com/user-attachments/assets/423bd3ca-ef7a-48db-9bb8-6578bafb5d77" />
