@@ -6,6 +6,8 @@
 
    ![](https://komarev.com/ghpvc/?username=whiskerbug&label=Page+Views&color=0029A5) 
 
+[Lurk me](https://whiskerbug.lurk.me/) ๋࣭⭑ [Ata](https://whiskerbug.atabook.org/)
+
 
 <div align="center">
 <img width="92" height="60" alt="17779429830076967477885606414641" src="https://github.com/user-attachments/assets/ced1d011-8dd0-4b00-a28b-360198a6e8e5" />
