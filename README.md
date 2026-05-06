@@ -6,7 +6,7 @@
 
    ![](https://komarev.com/ghpvc/?username=whiskerbug&label=Page+Views&color=0029A5) 
 
-[Lurk me](https://whiskerbug.lurk.me/)   ๋࣭⭑  [Ata](https://whiskerbug.atabook.org/)
+[Lurk me](https://whiskerbug.lurk.me/)  ☆  [Ata](https://whiskerbug.atabook.org/)
 
 
 <div align="center">
