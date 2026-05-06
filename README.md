@@ -1,16 +1,16 @@
-## Hi there 👋
+<img width="1280" height="256" alt="1778017522976315144063943326444" src="https://github.com/user-attachments/assets/775afbd8-9260-4313-b95d-b175b71e25a3" />
 
-<!--
-**WhiskerBug/Whiskerbug** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<div align="center">
+<img width="92" height="60" alt="17779429830076967477885606414641" src="https://github.com/user-attachments/assets/ced1d011-8dd0-4b00-a28b-360198a6e8e5" />
+<div align="center">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+$\text{\color{#FFE590} Welcome to our den!}$\
+$\text{\color{#465278} We are a singlet.}$\
+$\text{\color{#FFE590} Mark tends to be very shy.}$\
+$\text{\color{#465278} We are usally not offtab and waiting for someone to interact.}$
+
+
+
+<img width="1280" height="256" alt="1778017587447745098240508435577" src="https://github.com/user-attachments/assets/423bd3ca-ef7a-48db-9bb8-6578bafb5d77" />
