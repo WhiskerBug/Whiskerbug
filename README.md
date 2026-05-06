@@ -22,7 +22,7 @@ $\text{\color{#465278} We are usally not offtab and waiting for someone to inter
 
 $\text{\color{#FFE590} DNI is in our lurk me. }$
 
-$\text{\color{#465278} We are very mentally unwwell and unstable so we are looking for genuine and serious friendships.}$
+$\text{\color{#465278} We are very mentally unwell and unstable so we are looking for serious friendships.}$
 
 $\text{\color{#FFE590} Do not befriend us if you are going to talk to Mark once in a blue moon. }$
 
