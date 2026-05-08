@@ -24,6 +24,6 @@ $\text{\color{#FFE590} DNI is in our lurk me. }$
 
 $\text{\color{#465278} We are mentally unwell so we are looking for serious friendships.}$
 
-$\text{\color{#FFE590} Don't befriend us if you are going to talk to Mark once in a blue moon. }$
+$\text{\color{#FFE590} Don't befriend us if you are going to rarely talk to Mark. }$
 
 <img width="1280" height="256" alt="1778017587447745098240508435577" src="https://github.com/user-attachments/assets/423bd3ca-ef7a-48db-9bb8-6578bafb5d77" />
