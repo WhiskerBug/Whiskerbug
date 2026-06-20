@@ -41,7 +41,7 @@ $\text{\color{#FFE590} Don't befriend us if you are going to rarely talk to Mark
 
 <details>
   <summary>${\textsf{\color{#20147A}Art credits.}}$
-     </summary>
+</summary>
   ${\textsf{\color{#FFE590}Me, Drew the ugly hideous art of Colton on the left.}}$<br> 
   ${\textsf{\color{#20147A}Har Har, squigglesquish on tiktok, drew da Lord X art.}}$<br>
    ${\textsf{\color{#FFE590}Sparky, sparked..up on tiktok, made the Colton kissing Lord x body pillow art.}}$<br>
