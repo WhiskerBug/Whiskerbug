@@ -26,7 +26,7 @@ $\text{\color{#465278} We are mentally unwell so we are looking for serious frie
 
 $\text{\color{#FFE590} Don't befriend us if you are going to rarely talk to Mark. }$
 
-<img width="972" height="972" alt="17819913366488658166140144456774" src="https://github.com/user-attachments/assets/3aeeb201-e82b-42d0-b064-36c5959f96fe" />
+<img width="500" height="500" alt="17819913366488658166140144456774" src="https://github.com/user-attachments/assets/3aeeb201-e82b-42d0-b064-36c5959f96fe" />
 <div align="left">
 
 
