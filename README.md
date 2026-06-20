@@ -29,8 +29,8 @@ $\text{\color{#FFE590} Don't befriend us if you are going to rarely talk to Mark
 <img src="https://files.catbox.moe/jr1tqc.png" align="left" width="35%">
 
 
-<div align="center">
-   
+
+
  <details>
   <summary>${\textsf{\color{#20147A}DNI}}$
 </summary>
@@ -42,9 +42,7 @@ $\text{\color{#FFE590} Don't befriend us if you are going to rarely talk to Mark
    ${\textsf{\color{#20147A}-Examples are Ankha and Vaeporeon.}}$<br>
      ${\textsf{\color{#FFE590}People who move on from relationships quickly.}}$<br>
 </details> 
-   
-<div align="center">
-
+<p><b>
 
 <img src="https://files.catbox.moe/g9r5yf.png" align="right" width="35%">
 
@@ -53,6 +51,6 @@ $\text{\color{#FFE590} Don't befriend us if you are going to rarely talk to Mark
 
 <p><b>
 <img src="https://files.catbox.moe/o3d35r.png" align="center" width="25%">
-<p><b>
+
 
 <img width="1280" height="256" alt="1778017587447745098240508435577" src="https://github.com/user-attachments/assets/423bd3ca-ef7a-48db-9bb8-6578bafb5d77" />
