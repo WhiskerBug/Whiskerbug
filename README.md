@@ -26,7 +26,7 @@ $\text{\color{#465278} We are mentally unwell so we are looking for serious frie
 
 $\text{\color{#FFE590} Don't befriend us if you are going to rarely talk to Mark. }$
 
-<img src="17819913366488658166140144456774" src="[[https://files.catbox.moe/jr1tqc.png](https://soundcloud.com/dj-victor-borge/snuggle-song-x-mean-girls?si=4355ea86947f44c2b5892ccd1b69f4de&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)](https://files.catbox.moe/jr1tqc.png)" align="left" width="25%">
+<img src="17819913366488658166140144456774" src="https://files.catbox.moe/jr1tqc.png" align="left" width="25%">
 
 
 
