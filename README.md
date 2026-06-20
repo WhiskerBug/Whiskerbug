@@ -20,13 +20,26 @@ $\text{\color{#465278} We are a singlet.}$\
 $\text{\color{#FFE590} Mark tends to be very shy.}$\
 $\text{\color{#465278} We are usally not offtab and waiting for someone to interact.}$
 
-$\text{\color{#FFE590} DNI is in our lurk me. }$
+$\text{\color{#FFE590} Check Lurk me for DNI or scroll down.}$
 
 $\text{\color{#465278} We are mentally unwell so we are looking for serious friendships.}$
 
 $\text{\color{#FFE590} Don't befriend us if you are going to rarely talk to Mark. }$
 
 <img src="https://files.catbox.moe/jr1tqc.png" align="left" width="35%">
+
+ <details>
+  <summary>${\textsf{\color{#20147A}DNI}}$
+</summary>
+  ${\textsf{\color{#FFE590}Mannequin Mark or Minty number 1 fans.}}$<br> 
+  ${\textsf{\color{#20147A}Proshippers, Darkshippers, Radqueers and xenosatanists.)}}$<br>
+   ${\textsf{\color{#FFE590}-(Including people to tolerate them or don't care.) }$<br>
+   ${\textsf{\color{#20147A}Polyphobes and Anti Xenogenders.}}$<br>
+   ${\textsf{\color{#FFE590}People who sexualize extremely oversexualized characters.}}$<br>
+   ${\textsf{\color{#20147A}-Examples are Ankha and Vaeporeon.}}$<br>
+     ${\textsf{\color{#FFE590}People who move on from relationships quickly.}}$<br>
+</details> 
+
 
 <img src="https://files.catbox.moe/g9r5yf.png" align="right" width="35%">
 
