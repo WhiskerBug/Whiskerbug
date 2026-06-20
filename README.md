@@ -43,8 +43,9 @@ $\text{\color{#FFE590} Don't befriend us if you are going to rarely talk to Mark
 
 <img src="https://files.catbox.moe/g9r5yf.png" align="right" width="30%">
 
+<p><b>
 <img src="https://files.catbox.moe/11ibp9.png" align="center" width="45%">
-
+</b></p>
 
 <p><b>
 <img src="https://files.catbox.moe/o3d35r.png" align="center" width="25%">
