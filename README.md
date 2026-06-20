@@ -33,7 +33,7 @@ $\text{\color{#FFE590} Don't befriend us if you are going to rarely talk to Mark
 </summary>
   ${\textsf{\color{#FFE590}Mannequin Mark or Minty number 1 fans.}}$<br> 
   ${\textsf{\color{#20147A}Proshippers, Darkshippers, Radqueers and xenosatanists.}}$<br>
-   ${\textsf{\color{#FFE590}-Including people to tolerate them or don't care.}$<br>
+   ${\textsf{\color{#FFE590}-Including people to tolerate them or don't care.}}$<br>
    ${\textsf{\color{#20147A}Polyphobes and Anti Xenogenders.}}$<br>
    ${\textsf{\color{#FFE590}People who sexualize extremely oversexualized characters.}}$<br>
    ${\textsf{\color{#20147A}-Examples are Ankha and Vaeporeon.}}$<br>
