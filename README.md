@@ -37,7 +37,7 @@ $\text{\color{#FFE590} Don't befriend us if you are going to rarely talk to Mark
 
 <p><b>
 <img src="https://files.catbox.moe/o3d35r.png" align="center" width="25%">
-<p><b>
+</b></p>
 
 <details>
   <summary>${\textsf{\color{#20147A}Art credits.}}$
