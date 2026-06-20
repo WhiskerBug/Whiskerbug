@@ -26,9 +26,9 @@ $\text{\color{#465278} We are mentally unwell so we are looking for serious frie
 
 $\text{\color{#FFE590} Don't befriend us if you are going to rarely talk to Mark. }$
 
-<img src="https://files.catbox.moe/jr1tqc.png" align="left" width="25%">
+<img src="https://files.catbox.moe/jr1tqc.png" align="left" width="35%">
 
-<img src="https://files.catbox.moe/g9r5yf.png" align="right" width="25%">
+<img src="https://files.catbox.moe/g9r5yf.png" align="right" width="35%">
 
 <img src="https://files.catbox.moe/11ibp9.png" align="center" width="45%">
 
