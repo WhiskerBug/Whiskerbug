@@ -53,9 +53,9 @@ $\text{\color{#FFE590} Don't befriend us if you are going to rarely talk to Mark
 </summary>
   ${\textsf{\color{#788aa3}Me, Drew the ugly hideous art of Colton on the left.}}$<br> 
   ${\textsf{\color{#e8ddb5}Har Har, squigglesquish on tiktok, drew da Lord X art.}}$<br>
-   ${\textsf{\color{#788aa3}Sparky, sparked..up on tiktok, made the Colton kissing Lord x body pillow art.}}$<br>
+   ${\textsf{\color{#788aa3}Sparky, sparked..up on tiktok, made the Colton kissing Lord x body pillow art,}}$<br>
+    ${\textsf{\color{#e8ddb5}sona and profile picture.}}$<br>
 </details>
-
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/99dbd2e9-bcbc-46c1-9df1-8384bbfc09b3" />
    
 <img width="1280" height="256" alt="1778017587447745098240508435577" src="https://github.com/user-attachments/assets/423bd3ca-ef7a-48db-9bb8-6578bafb5d77" />
