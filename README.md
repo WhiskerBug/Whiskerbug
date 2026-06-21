@@ -64,6 +64,7 @@ $\text{\color{#FFE590} Don't befriend us if you are going to rarely talk to Mark
    ${\textsf{\color{#788aa3}Sparky, sparked..up on tiktok, made the Colton kissing Lord x body pillow art,}}$<br>
     ${\textsf{\color{#e8ddb5}sona and profile picture.}}$<br>
 </details>
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/99dbd2e9-bcbc-46c1-9df1-8384bbfc09b3" />
-   
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/99dbd2e9-bcbc-46c1-9df1-8384bbfc09b3" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/4f0e7f18-deef-4851-8255-fbe8cf3bdfd8" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/476cec52-6581-4e2a-86b8-b3cc36dd8b3c" />
+
+
 <img width="1280" height="256" alt="1778017587447745098240508435577" src="https://files.catbox.moe/gsyklr.png" />
