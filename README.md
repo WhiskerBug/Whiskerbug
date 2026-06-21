@@ -69,4 +69,7 @@ $\text{\color{#FFE590} Don't befriend us if you are going to rarely talk to Mark
 
 <img src="https://github.com/user-attachments/assets/8d51e5ab-f1e0-4aef-898a-1bdca2c28fba" align="right" width="10%"  />
 
+<img src="https://github.com/user-attachments/assets/daaec6bd-7984-48f3-9ff3-ba2672670027" align="left" width="10%" />
+
+
 <img width="1280" height="256" alt="1778017587447745098240508435577" src="https://files.catbox.moe/gsyklr.png" />
