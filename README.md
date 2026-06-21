@@ -28,6 +28,8 @@ $\text{\color{#FFE590} Don't befriend us if you are going to rarely talk to Mark
 
 <img src="https://files.catbox.moe/jr1tqc.png" align="left" width="30%">
 
+<img src="https://files.catbox.moe/g9r5yf.png" align="right" width="30%">
+
 </p>
 <p align="center">
 <details>
@@ -41,8 +43,6 @@ $\text{\color{#FFE590} Don't befriend us if you are going to rarely talk to Mark
    ${\textsf{\color{#20147A}-Examples are Ankha and Vaeporeon.}}$<br>
      ${\textsf{\color{#FFE590}People who move on from relationships quickly.}}$<br>
 </details>
-
-<img src="https://files.catbox.moe/g9r5yf.png" align="right" width="30%">
 
 <img src="https://files.catbox.moe/11ibp9.png" align="center" width="45%">
 
