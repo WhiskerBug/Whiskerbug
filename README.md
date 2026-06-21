@@ -70,6 +70,7 @@ $\text{\color{#FFE590} Don't befriend us if you are going to rarely talk to Mark
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/7cbdbfc8-3216-4f03-85a3-c68eed134608" /> <img width="101" height="58" alt="image" src="https://github.com/user-attachments/assets/391356ae-4aba-4a7a-9a79-6f3df14d22f3" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/77b434ba-1bb4-4438-bc1b-6e6429a14819" />
 </b></p>
 
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/a1d89248-fdbb-4869-ac45-164be9a56a79" />
 
 
 
