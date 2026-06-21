@@ -64,21 +64,26 @@ $\text{\color{#FFE590} Don't befriend us if you are going to rarely talk to Mark
    ${\textsf{\color{#788aa3}Sparky, sparked..up on tiktok, made the Colton kissing Lord x body pillow art,}}$<br>
     ${\textsf{\color{#e8ddb5}sona and profile picture.}}$<br>
 </details>
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/99dbd2e9-bcbc-46c1-9df1-8384bbfc09b3" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/4f0e7f18-deef-4851-8255-fbe8cf3bdfd8" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/476cec52-6581-4e2a-86b8-b3cc36dd8b3c" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/df5d99ba-f397-44db-8857-b4a4ec18a609" /> 
+
+
+<img width="59" height="18" alt="image" src="https://files.catbox.moe/hcl0o1.png" />
+
+
+<img width="99" height="56" alt="image" src="https://files.catbox.moe/a3gxyv.png" /> <img width="99" height="56" alt="image" src="https://files.catbox.moe/ttyr9s.png" /> <img width="99" height="56" alt="image" src="https://files.catbox.moe/7wu1y9.png" /> <img width="99" height="56" alt="image" src="https://files.catbox.moe/f1tsad.png" /> 
 
 <p><b>
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/7cbdbfc8-3216-4f03-85a3-c68eed134608" /> <img width="101" height="58" alt="image" src="https://github.com/user-attachments/assets/391356ae-4aba-4a7a-9a79-6f3df14d22f3" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/77b434ba-1bb4-4438-bc1b-6e6429a14819" />
+<img width="99" height="56" alt="image" src="https://files.catbox.moe/rrkpcv.png" /> <img width="101" height="58" alt="image" src="https://files.catbox.moe/5a8fje.png" /> <img width="99" height="56" alt="image" src="https://files.catbox.moe/un1do5.png" />
 </b></p>
 
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b590f6f8-4da3-4f1b-88cd-6e5c97294309" />
+<img width="99" height="56" alt="image" src="https://files.catbox.moe/a81lej.png" />
 
 
 
 
 
-<img src="https://github.com/user-attachments/assets/8d51e5ab-f1e0-4aef-898a-1bdca2c28fba" align="right" width="10%"  />
+<img src="https://files.catbox.moe/2v0b8r.png" align="right" width="10%"  />
 
-<img src="https://github.com/user-attachments/assets/daaec6bd-7984-48f3-9ff3-ba2672670027" align="left" width="10%" />
+<img src="https://files.catbox.moe/2tgyuv.png" align="left" width="10%" />
 
 
 <img width="1280" height="256" alt="1778017587447745098240508435577" src="https://files.catbox.moe/gsyklr.png" />
