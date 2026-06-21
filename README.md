@@ -29,7 +29,7 @@ $\text{\color{#FFE590} Don't befriend us if you are going to rarely talk to Mark
   <summary>${\textsf{\color{#335DDC}Where you can find us.}}$
 </summary>
   <img src="https://files.catbox.moe/0phx5l.png" align="center" width="25%">
-    <img src="https://files.catbox.moe/0phx5l.png" align="center" width="25%">
+    <img src="https://files.catbox.moe/zgegqc.png" align="center" width="25%">
     <img src="https://files.catbox.moe/b6faz4.png" align="center" width="25%">
 </details>
 
