@@ -26,12 +26,7 @@ $\text{\color{#465278} We are mentally unwell so we are looking for serious frie
 
 $\text{\color{#FFE590} Don't befriend us if you are going to rarely talk to Mark. }$
 
-<img src="https://files.catbox.moe/jr1tqc.png" align="left" width="30%">
-
-<img src="https://files.catbox.moe/g9r5yf.png" align="right" width="30%">
-
-
-<img src="https://files.catbox.moe/11ibp9.png" align="center" width="45%">
+<img src="https://files.catbox.moe/l06wkk.png" align="center" width="35%">
 
 </p>
 <p align="center">
@@ -46,6 +41,9 @@ $\text{\color{#FFE590} Don't befriend us if you are going to rarely talk to Mark
    ${\textsf{\color{#20147A}-Examples are Ankha and Vaeporeon.}}$<br>
      ${\textsf{\color{#FFE590}People who move on from relationships quickly.}}$<br>
 </details>
+
+<img src="https://files.catbox.moe/11ibp9.png" align="center" width="45%">
+
 
 <p><b>
 <img src="https://files.catbox.moe/o3d35r.png" align="center" width="25%">
