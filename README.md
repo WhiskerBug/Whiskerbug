@@ -52,6 +52,7 @@ $\text{\color{#FFE590} Don't befriend us if you are going to rarely talk to Mark
 <img src="https://files.catbox.moe/11ibp9.png" align="center" width="45%">
 
 
+
 <p><b>
 <img src="https://files.catbox.moe/o3d35r.png" align="center" width="25%">
 </b></p>
@@ -66,7 +67,8 @@ $\text{\color{#FFE590} Don't befriend us if you are going to rarely talk to Mark
 </details>
 
 
-<img width="59" height="18" alt="image" src="https://files.catbox.moe/hcl0o1.png" />
+<img width="59" height="18" alt="image" src="https://files.catbox.moe/hcl0o1.png" /> <img width="59" height="18" alt="image" src="https://files.catbox.moe/j8jhba.png" /> <img width="59" height="18" alt="image" src="https://files.catbox.moe/jrqkq3.png" />
+
 
 
 <img width="99" height="56" alt="image" src="https://files.catbox.moe/a3gxyv.png" /> <img width="99" height="56" alt="image" src="https://files.catbox.moe/ttyr9s.png" /> <img width="99" height="56" alt="image" src="https://files.catbox.moe/7wu1y9.png" /> <img width="99" height="56" alt="image" src="https://files.catbox.moe/f1tsad.png" /> 
