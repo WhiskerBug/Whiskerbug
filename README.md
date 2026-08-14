@@ -21,9 +21,9 @@ $\text{\color{#465278} We are usally not offtab and waiting for someone to inter
 
 $\text{\color{#FFE590} Check Lurk me for DNI or scroll down.}$
 
-$\text{\color{#465278} We are mentally unwell so we are looking for serious friendships.}$
+$\text{\color{#465278} Glad to say Mark is getting beter.}$
 
-$\text{\color{#FFE590} Don't befriend us if you are going to rarely talk to Mark. }$
+$\text{\color{#FFE590} Main discord is shreddedguts. }$
 
 <details>
   <summary>${\textsf{\color{#335DDC}Where you can find us.}}$
