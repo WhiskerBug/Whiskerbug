@@ -21,7 +21,7 @@ $\text{\color{#465278} We are usally not offtab and waiting for someone to inter
 
 $\text{\color{#FFE590} Check Lurk me for DNI or scroll down.}$
 
-$\text{\color{#465278} Glad to say Mark is getting beter.}$
+$\text{\color{#465278} Glad to say Mark is getting better.}$
 
 $\text{\color{#FFE590} Main discord is shreddedguts. }$
 
